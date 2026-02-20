@@ -1,0 +1,2 @@
+# PintarQid
+Ngaji online private
